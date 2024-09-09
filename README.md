@@ -1,1 +1,8 @@
-# WebDesignHomework1/Assignment2/README.md
+# Kelsie Burns
+## Assignment
+**Kelsie**
+*Kelsie*
+My list:
+- Kelsie
+- KELSIE
+- kelsie
